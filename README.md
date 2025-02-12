@@ -31,7 +31,7 @@ Web Net是一款高速、安全且可靠的免费PC电脑梯子，同时也是�
 ![Picture3.png](https://p.inari.site/usr/795/67ac1bf5026c6.png)
 
 ## 四、Private LINK
-官网地址：[https://xuebispeed.com/](https://xuebispeed.com/)
+官网地址：[https://go.satr2000.com](https://go.satr2000.com)
 
 Private LINK是一款稳定好用的Android安卓梯子软件，拥有广泛的服务器网络和出色的隐私保护功能，适用于多个平台，针对windows系统也出了免费PC电脑梯子客户端版本。
 
